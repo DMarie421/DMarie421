@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DMarie421
 - 👀 I’m interested in machine knitting, hand knitting, crochet and DIY...
-- 🌱 I’m currently learning ..
+- 🌱 I’m currently learning how to use my Brother 910 and bring it more up to date..
 - 💞️ I’m looking to collaborate on AYAB on my Brother 910 knitting machine....
 - 📫 How to reach me ferndm@aol.com
 
